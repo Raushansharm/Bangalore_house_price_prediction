@@ -1,2 +1,2 @@
-![](BHP_WEBSITE.JPG)
+![](BHP_WEBSITE.jpg)
 
